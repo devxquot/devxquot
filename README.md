@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/dc86b5c8-78a2-44fc-956c-1c153dff8905" width="200" alt="die-of-death-devxquot">
+  <img src="https://files.catbox.moe/4mbjz2.jpg" width="200">
 </p>
 <p align="center">
   <a href="https://dvsqtceo.straw.page">strwpg1</a> • 
