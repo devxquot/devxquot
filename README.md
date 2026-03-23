@@ -1,1 +1,1 @@
-![Uploading Untitled532_20251210013156.png…]()
+# gng idk how to make ts pls omg help
