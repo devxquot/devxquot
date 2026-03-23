@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/4mbjz2.jpg" width="200">
+  <img src="https://files.catbox.moe/4mbjz2.jpg" width="500">
 </p>
 <p align="center">
   <a href="https://dvsqtceo.straw.page">strwpg1</a> • 
