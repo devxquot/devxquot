@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/4mbjz2.jpg" width="500" alt="devesquot...">
 </p>
 <p align="center">
-  ︶⊹︶︶ <a href="">strwpg1 . under construction</a> 𖥔
+  ︶⊹︶︶ strwpg1 . under construction 𖥔
   <a href="https://estholic.atabook.org/">atabook</a> 𖥔
   <a href="https://estholic.straw.page">strwpg2</a> ︶︶⊹︶
 </p>
