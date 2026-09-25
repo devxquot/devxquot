@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/4mbjz2.jpg" width="500" alt="devesquot...">
+  <img src="https://files.catbox.moe/a800f8.jpg" width="500" alt="devesquot...">
 </p>
 <p align="center">
   ︶⊹︶︶ strwpg1 . under construction 𖥔
