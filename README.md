@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/a800f8.jpg" width="500" alt="devesquot...">
 </p>
 <p align="center">
-  ︶⊹︶︶ <a href="https://headshoot.atabook.org/">strwpg</a> 𖥔
+  ︶⊹︶︶ <a href="https://7he4dsh0t.straw.page/">strwpg</a> 𖥔
   <a href="https://headshoot.atabook.org/"> atabook</a>
   ︶︶⊹︶
 </p>
