@@ -3,7 +3,7 @@
 </p>
 <p align="center">
   ︶⊹︶︶ strwpg . under construction 𖥔
-  <a href="https://headshoot.atabook.org/">atabook</a> 𖥔
+  <a href="https://headshoot.atabook.org/">atabook</a>
   ︶︶⊹︶
 </p>
 <p>
