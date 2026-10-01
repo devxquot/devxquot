@@ -3,7 +3,8 @@
 </p>
 <p align="center">
   ︶⊹︶︶ <a href="https://7he4dsh0t.straw.page/">strwpg</a> 𖥔
-  <a href="https://headshoot.atabook.org/"> atabook</a>
+  <a href="https://headshoot.atabook.org/"> atabook</a> 𖥔
+  <a href="https://guns.lol/7he4dsh0t"> guns</a>
   ︶︶⊹︶
 </p>
   <p align="center">
