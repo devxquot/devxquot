@@ -39,7 +39,7 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
    $\color{#eb6c6c}\textsf{they call me Savor 𝄍 Mr. Bite}$
   </p>
       <p align="center">
-   $\color{#c76f52}\textsf{andrew 𝄍 azure 𝄍 (possibly) devesto kinnie }$
+   $\color{#c76f52}\textsf{andrew . azure . (possibly) devesto kinnie }$
   </p>
   <p align="center">
     $\color{#ad703b}\textsf{indo 𝄍 safe server . my english isn't fluent}$
