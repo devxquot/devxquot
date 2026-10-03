@@ -41,7 +41,7 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
     $\color{#944d4e}\textsf{indo 𝄍 safe server . my english isn't fluent}$
   </p>
     <p align="center">
-   $\color{#803436}\textsf{found me at toy stash near bakery or roblox area}$
+   $\color{#803436}\textsf{find me at toy stash near bakery or roblox area}$
   </p>
 
 <p align="center">
