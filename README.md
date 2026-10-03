@@ -36,13 +36,16 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
 ──────•✦•──────
   </p>
     <p align="center">
-   $\color{#ab6c6d}\textsf{they call me Savor 𝄍 Mr. Bite}$
+   $\color{#eb6c6c}\textsf{they call me Savor 𝄍 Mr. Bite}$
+  </p>
+      <p align="center">
+   $\color{#c76f52}\textsf{andrew 𝄍 azure 𝄍 (possibly) devesto kinnie }$
   </p>
   <p align="center">
-    $\color{#944d4e}\textsf{indo 𝄍 safe server . my english isn't fluent}$
+    $\color{#ad703b}\textsf{indo 𝄍 safe server . my english isn't fluent}$
   </p>
     <p align="center">
-   $\color{#803436}\textsf{find me at toy stash near bakery or roblox area}$
+   $\color{#917626}\textsf{find me at toy stash near bakery or roblox area}$
   </p>
 
 <p align="center">
