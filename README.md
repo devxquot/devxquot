@@ -28,6 +28,7 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
 ⊹ <a href="https://7he4dsh0t.straw.page/">strwpg</a> ⊹
 <a href="https://headshoot.atabook.org/"> atabook</a> ⊹
 <a href="https://guns.lol/7he4dsh0t"> guns</a> ⊹
+<a href="https://pronouns.cc/@7he4dsh0t"> pronouns</a> ⊹
 </p>
 
   <p>
