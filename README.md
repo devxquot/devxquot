@@ -1,10 +1,8 @@
 <p align="center">
   <img src="https://files.catbox.moe/u72eu6.png" width="500" alt="rose">
 </p>
-<p>
-  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=devxquot&color=b22222&label=dude's+errands&abbreviated=true">
-</p>
+<p align="center">
+<a href="https://hits.sh/github.com/devxquot/hits/"><img alt="Hits" src="https://hits.sh/github.com/devxquot/hits.svg?label=dude's%20errands&extraCount=1800&color=145f61&labelColor=611414"/></a>
 <p align="center">
   <img src="https://files.catbox.moe/1qhd3g.jpeg" width="500" alt="devesto">
 </p>
