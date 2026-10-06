@@ -17,7 +17,7 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
   </p>
     <p>
     <p align="center">
-$\color{#a13a3c}\textsf{ITS MY BIRTHDAY TODAYYY IM OFFICIALY UNC}$
+$\color{#a13a3c}\textsf{BIRTHDAY ENDED, THANKS ANYONE WHO SENT ME WISHES (i'll make a dump soon)}$
   </p>
 
   <p>
