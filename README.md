@@ -38,9 +38,6 @@ $\color{#a13a3c}\textsf{﹕ⵌ┆ thank you devesquot for keeps me alive!}$
       <p align="center">
    $\color{#d19c79}\textsf{andrew . azure . (possibly) devesto kinnie }$
   </p>
-        <p align="center">
-   $\color{#b38e5f}\textsf{── ⟢ ・⸝⸝ i have a partner. 𖹭.ᐟ}$
-  </p>
   <p align="center">
     $\color{#9c8944}\textsf{indo 𝄍 safe server . my english isn't fluent}$
   </p>
