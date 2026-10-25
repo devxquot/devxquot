@@ -11,10 +11,3 @@
 <p align="center">
 𝔀ill  ‎ ‎ ‎ ‎ ‎ you 𝓫e  ‎ ‎ ‎ ‎ ‎ the <a href="https://github.com/jellybunni">swe𝓮t</a> to  ‎ ‎ ‎ ‎ ‎ 𝓶y  ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/devxquot">a𝓹peti𝓽e</a> ?
 </p>
-  
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31auzc7x4qtoyifjsyiocjbbasqq&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31auzc7x4qtoyifjsyiocjbbasqq&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=b73434&bar_color_cover=true">
-  </a>
-</p>
-
