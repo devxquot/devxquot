@@ -8,6 +8,9 @@
 <p align="center">
 ʚ ‎ ‎ ‎ ‎ ‎ <a href="https://7he4dsh0t.straw.page/">st𝓻aw𝓹age</a> ✦ <a href="https://headshoot.atabook.org/">a𝓽aboo𝓴</a> ✦ <a href="https://guns.lol/7he4dsh0t">gu𝓷s</a> ✦ <a href="https://pronouns.cc/@7he4dsh0t">𝓹rono𝓾n𝓼</a> ‎ ‎ ‎ ‎ ‎ ɞ
 </p>
+<p align="center">
+will  ‎ ‎ ‎ ‎ ‎ you be  ‎ ‎ ‎ ‎ ‎ the <a href="https://github.com/jellybunni">sweet</a> to  ‎ ‎ ‎ ‎ ‎ my  ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/devxquot">appetite</a> ?
+</p>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31auzc7x4qtoyifjsyiocjbbasqq&redirect=true">
