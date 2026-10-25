@@ -2,7 +2,7 @@
 <a href="https://hits.sh/github.com/devxquot/hits/"><img alt="Hits" src="https://hits.sh/github.com/devxquot/hits.svg?label=dude's%20errands&extraCount=1800&color=145f61&labelColor=611414"/></a>
 
 <p align="center">
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=500&size=50&duration=3000&pause=&color=B81F1F&width=500&height=150&lines=%22+we+should+stick+together;you're+my+best+friend%2C;i'll+love+you+forever.+%22+%F0%91%A3%B2%F0%9D%84%9E" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
