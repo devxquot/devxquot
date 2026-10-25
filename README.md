@@ -9,7 +9,7 @@
 ʚ ‎ ‎ ‎ ‎ ‎ <a href="https://7he4dsh0t.straw.page/">st𝓻aw𝓹age</a> ✦ <a href="https://headshoot.atabook.org/">a𝓽aboo𝓴</a> ✦ <a href="https://guns.lol/7he4dsh0t">gu𝓷s</a> ✦ <a href="https://pronouns.cc/@7he4dsh0t">𝓹rono𝓾n𝓼</a> ‎ ‎ ‎ ‎ ‎ ɞ
 </p>
 <p align="center">
-will  ‎ ‎ ‎ ‎ ‎ you be  ‎ ‎ ‎ ‎ ‎ the <a href="https://github.com/jellybunni">sweet</a> to  ‎ ‎ ‎ ‎ ‎ my  ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/devxquot">appetite</a> ?
+𝔀ill  ‎ ‎ ‎ ‎ ‎ you 𝓫e  ‎ ‎ ‎ ‎ ‎ the <a href="https://github.com/jellybunni">swe𝓮t</a> to  ‎ ‎ ‎ ‎ ‎ 𝓶y  ‎ ‎ ‎ ‎ ‎ <a href="https://github.com/devxquot">a𝓹peti𝓽e</a> ?
 </p>
   
 <p align="center">
