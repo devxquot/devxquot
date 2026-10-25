@@ -2,6 +2,10 @@
 <a href="https://hits.sh/github.com/devxquot/hits/"><img alt="Hits" src="https://hits.sh/github.com/devxquot/hits.svg?label=dude's%20errands&extraCount=1800&color=145f61&labelColor=611414"/></a>
 
 <p align="center">
+
+</p>
+
+<p align="center">
 <img width="1280" height="609" alt="Untitled531_20251209124456" src="https://github.com/user-attachments/assets/becbdfd0-9c70-4ac1-bb23-d3db6aafffb7" alt: devesquot />
 </p>
 
